@@ -1,3 +1,7 @@
+Prochain concert : 
+24.03.2023 Grrrnd Zéro (Vaulx-en-Velin)
+
+
 - 👋 Hi, I’m @NAIIMAMARE
 
 Prochain concert : Sortie de BRUT BRUT POSTERS, organisé par Barbapop et Universel Underground, Grrrnd Zéro (Lyon)
