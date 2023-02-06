@@ -6,6 +6,12 @@ Prochain concert :
 Prochain concert !
 02.02.2023 @ SONIC + KAUMWALD & MARION COUSIN
 
+BRUITISME (Lyon)
+Avec CYRIL MEYSSON, 14.01.2023
+DUO DRONE/ NOISE 
+
+PROCHAIN CONCERTᴐ
+19.05.2022 @ SOMA  (ḾẢṘᴤỄḯḶḸḙ)
 
 - 👋 Hi, I’m @NAIIMAMARE
 
