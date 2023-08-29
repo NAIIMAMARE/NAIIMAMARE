@@ -1,11 +1,11 @@
-                                    ℘ཞơƈɧąıŋʂ ƈơŋƈɛཞɬʂ
-
+                                   A    V E N I R
 07.09.2023  GALERIE EX NIHILO - Besançon
 08.09.2023  Besançon (autre endroit)
 09.09.2023 LES DIGITALES BIENNE
 https://lesdigitales.ch/events/biel-bienne-2023/
 ------------------------------------------------
-
+                                  PASSÉ PROCHE
+                                  
 24.03.2023 @ Grrrnd Zéro (Vaulx-en-Velin)
 https://www.grrrndzero.org/index.php/2402-ven-24-03-lw2-mshr-naiima-mare-succhiamo-surprises
 
