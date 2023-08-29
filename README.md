@@ -15,8 +15,8 @@ https://www.grrrndzero.org/index.php/2402-ven-24-03-lw2-mshr-naiima-mare-succhia
 
 02.02.2023 @ SONIC + KAUMWALD & MARION COUSIN
 
-BRUITISME (Vaulx-en-Velin)
-Avec CYRIL MEYSSON, 14.01.2023
+14.01.2023  FESTIVAL BRUITISME (Vaulx-en-Velin)
+Avec CYRIL MEYSSON
 DUO DRONE/ NOISE 
 
 11.06.2022  DOXA ESTA
