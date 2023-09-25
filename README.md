@@ -11,7 +11,7 @@ https://lesdigitales.ch/events/biel-bienne-2023/
 24.03.2023 @ Grrrnd Zéro (Vaulx-en-Velin)
 https://www.grrrndzero.org/index.php/2402-ven-24-03-lw2-mshr-naiima-mare-succhiamo-surprises
 
-11.03.2023 @ SUMO
+11.03.2023 @ SUMO  THANLS HUGO AND MATTHIEU!!
 
 02.02.2023 @ SONIC + KAUMWALD & MARION COUSIN
 
